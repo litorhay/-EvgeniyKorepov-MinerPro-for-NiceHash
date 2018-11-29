@@ -1,0 +1,1 @@
+# -EvgeniyKorepov-MinerPro-for-NiceHash
